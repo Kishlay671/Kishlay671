@@ -47,4 +47,4 @@
 
 ### 🔗 Connect With Me
 - 💼 LinkedIn: https://linkedin.com/in/kishlay-kumar-29827a298
-- 📧 Email: your-kishlaykumar671@gmail.com
+- 📧 Email: kishlaykumar671@gmail.com
